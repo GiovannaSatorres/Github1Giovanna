@@ -1,2 +1,2 @@
 # Github1Giovanna
-Checkpoint
+Checkpoint 2 – Giovanna Cardoso Satorres
